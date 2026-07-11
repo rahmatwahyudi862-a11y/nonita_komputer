@@ -1,0 +1,1 @@
+# nonita_komputer
